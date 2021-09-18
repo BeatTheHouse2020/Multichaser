@@ -5,6 +5,7 @@ Multichaser is a paid script and can be purchased on Beat The House 2020 discord
 
 YouTube: Many youtube videos on this script.
 Beat The House channel: https://www.youtube.com/channel/UCCCc37aKKgvugQjDxO8iC6g/
+Discord: https://discord.gg/BjqUuGw8mw
 
 Multichaser is basically a platform script that can be used in many ways based on your risk tolerance.
 
